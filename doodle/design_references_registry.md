@@ -344,7 +344,7 @@
 
 https://blog.pressfoto.ru/how-to-make-doodle-video
 
-
+))
 
 *Дата создания реестра: 22 октября 2025*
 
